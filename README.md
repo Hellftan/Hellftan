@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Hellftan
+- 👀 I’m interested in ... everything related to coding
+- 🌱 I’m currently learning ... everything related to coding
+- 💞️ I’m looking to collaborate on ... everything related to coding
+- 📫 How to reach me ... just holla at me
